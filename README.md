@@ -1,16 +1,14 @@
-## Hi there 👋
+# ✷ 　 　　 　 ·
+　 ˚ * .
+　 　　 *　　 * ⋆ 　 .
+· 　　 ⋆ 　　　 ˚ ˚ 　　 ✦
+　 ⋆ · 　 *
+　　　　 ⋆ ✧　 　 · 　 ✧　✵
+　 · ✵
 
-<!--
-**SouHeroiDoMar/SouHeroiDoMar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+:gb: :: 𝓁𝑜𝓋𝑒 𝓎𝑜𝓊 𝓂𝓎 𝑜𝓁𝒹 𝒸𝒽𝒶𝓅! ♡
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+:portugal: :: 𝓎𝑜𝓊 𝒶𝓇𝑒 𝓁𝑜𝓋𝑒𝒹 𝒾𝓃 𝓉𝒽𝑒 𝒷𝑒𝒶𝒸𝒽𝑒𝓈 𝑜𝒻 𝐹𝒶𝓇𝑜 ♡
+<img width="2048" height="2048" alt="22_Sem_Titulo_20261107180424" src="https://github.com/user-attachments/assets/49476622-2683-4ab5-a5ed-7e04d8600a0f" />
+(i literally just figured out how to do this)
+## HI UKFR DNI SPAPORT (literal inc) DNI OK
