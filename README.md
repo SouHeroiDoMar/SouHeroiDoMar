@@ -10,7 +10,7 @@
 
 :portugal: :: 𝓎𝑜𝓊 𝒶𝓇𝑒 𝓁𝑜𝓋𝑒𝒹 𝒾𝓃 𝓉𝒽𝑒 𝒷𝑒𝒶𝒸𝒽𝑒𝓈 𝑜𝒻 𝐹𝒶𝓇𝑜 ♡
 
-[ukport, engport, repruss, ahege, any enc except fruk freng and spaport]
+[ukport, engport, repruss, ahege, any unproblematic enc except fruk freng and spaport]
 
 c*h enc, usually offtab but s.afk
 
