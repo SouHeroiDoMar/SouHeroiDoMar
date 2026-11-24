@@ -16,4 +16,6 @@ c*h enc, usually offtab but s.afk
 
 dni or dniuf strict if i have it in my name
 
+therealsatomi on discord if you want to contact me better
+
 <img width="2048" height="2048" alt="22_Sem_Titulo_20261107180424" src="https://github.com/user-attachments/assets/49476622-2683-4ab5-a5ed-7e04d8600a0f" />
