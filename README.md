@@ -12,7 +12,7 @@
 
 [ukport, engport, repruss, ahege, any unproblematic enc except fruk freng and spaport]
 
-c*h enc, usually offtab but s.afk
+c*h and int enc, usually offtab but s.afk
 
 dni or dniuf strict if i have it in my name
 
