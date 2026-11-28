@@ -37,7 +37,7 @@
 <details>
   <summary>.𖥔 ݁ ˖╭ ┆HOW 2 COMMUNICATE W ME ╰⊹ ࣪</summary>
   <p> strawpage: https://thekingdomofportugal.straw.page </p>
-  <p> titok: .spriggs0 or something </p>
+  <p> tiktok: .spriggs0 or something </p>
  <p> discord: therealsatomi </p>
 </details>
 
