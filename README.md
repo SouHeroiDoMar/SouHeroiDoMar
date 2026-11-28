@@ -24,7 +24,7 @@
 @poltergeistxo and @zephhatred
 
 <div style="background-color: #1a1a2e;">
-  <h6 style="color: #ff0000"; font-style: italic;">
+  <h5 style="color: #ff0000"; font-style: italic;">
     <em> basic dni criteria | block freely if you disrespect my boundaries </em><br>
 </div>
 
