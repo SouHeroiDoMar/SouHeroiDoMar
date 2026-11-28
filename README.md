@@ -4,7 +4,7 @@
 
 <div style="background-color: #1a1a2e;">
   <h3 style="color: #ff0000"; font-style: italic;">
-    <em> MY PAGE </em><br>
+    <em> 𖥻 ׁ ׅ MY PAGE ﹒ ◡◡ </em><br>
 </div>
 
 <div style="background-color: #1a1a2e;">
